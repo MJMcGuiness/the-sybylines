@@ -9,7 +9,7 @@ a clan of mysterious mages, arrive in the pre-industrial nation
 of Emor. The Sybyline predict the weather and cure diseases, but
 is this because they also control the weather and cause plagues?
 Could they be agents of the dreaded despotism of Anihc? Josip
-and his longed-for love, Margerai, must discover whether the
+and his longed-for love, Margerai, must discover whether 
 Sybyline are really benevolent, or if their good works are cover
 for sinister ends. As Josip and Margerai struggle to understand
 the Sybyline’s motives, greed, suspicion, betrayal, and violence
